@@ -1,1 +1,1 @@
-![tumblr_mp2ro9lnx41qkbkpvo1_1280](https://github.com/user-attachments/assets/88fe71a6-a991-4602-9ba3-307e7746ef02)
+![Screenshot 2024-09-07 124402](https://github.com/user-attachments/assets/a9b07f3f-d623-4827-b33a-c071d9c83140)
